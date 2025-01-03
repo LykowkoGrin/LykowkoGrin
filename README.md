@@ -1,3 +1,1 @@
-- 👋 Hi, I’m @LykowkoGrin
-- 👀 I’m interested in interesting projects
-- 🌱 I’m currently learning Pyhton,Django
+dfgkhulibnfonogn34ngermklv;e,vrkmre'lkvbmkamvbakenber
