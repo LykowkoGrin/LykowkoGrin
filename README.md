@@ -1,1 +1,2 @@
-dfgkhulibnfonogn34ngermklv;e,vrkmre'lkvbmkamvbakenber
+Большинство не может ошибаться:)
+Кроме случаев, когда оно ошибается
